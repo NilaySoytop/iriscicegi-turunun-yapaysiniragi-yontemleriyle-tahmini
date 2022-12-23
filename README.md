@@ -1,0 +1,1 @@
+# iriscicegi-turunun-yapaysiniragi-yontemleriyle-tahmini
